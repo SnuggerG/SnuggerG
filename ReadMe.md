@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎮 Aspiring programmer | Self-learning C++ and JavaScript  <br>📊 Data Analyst | Game Coach | Steward  <br>💻 Coding for fun and the love of a challenge<br><br>Hit me up if you like to play R6S—open to random ideas too!
+🎮 Aspiring programmer | Self-learning C++ and JavaScript  <br>📊 Data Analyst | Game Coach | Flight Attendant  <br>💻 Coding for fun and the love of a challenge<br><br>Hit me up if you like to play R6S—open to random ideas too!
 
 
 ## 🌐 Socials:
